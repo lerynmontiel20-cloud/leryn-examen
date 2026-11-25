@@ -1,1 +1,0 @@
-# leryn-examen
